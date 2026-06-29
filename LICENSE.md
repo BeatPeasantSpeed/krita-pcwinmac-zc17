@@ -1,4 +1,4 @@
-# 
+# Turbo Krita extensions pour Mac OS | Sécurisé Krita extensions pour PC Windows. Avec tampon de duplication et gestion des couleurs — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
